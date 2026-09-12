@@ -8,6 +8,7 @@
 -Discord: EujenioB
 -Email: bujnickijauhen@gmail.com
 -Telegram: @JauhenB
+-LinkedIn: [Yauhen Buinitski] (https://www.linkedin.com/in/yauhen-buinitski/)
 
 
 ***
